@@ -1,2 +1,2 @@
 # Certifications
-all certificates are achieved during 2022-2026
+all certificates are achieved during academic year 2022-2026 
